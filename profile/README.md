@@ -7,6 +7,6 @@ We deliver end-to-end web solutions from strategy and design to development, dep
 
 ## Quick links
 - Website: [islandspansolutions.com](https://islandspansolutions.com)
-- Contact: [lahirusamishka@gmail.com](mailto:lahirusamishka)
+- Contact: [info@islandspansolutions.com](mailto:info@islandspansolutions.com)
 - WhatsApp: [+94 77 336 1715](https://wa.me/94773361715)
 
